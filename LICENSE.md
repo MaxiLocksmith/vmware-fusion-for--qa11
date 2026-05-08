@@ -1,4 +1,4 @@
-
+VMware Fusion for macOS instant Extension - clipboard-manager and app-uninstaller offers the most advanced VMware Fusion for macOS extension, with clipboard-manager and
 
 
 
